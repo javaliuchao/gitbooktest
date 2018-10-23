@@ -9,4 +9,10 @@
 [You'll Never Throw Away Avocado Seed After Watching This](https://www.youtube.com/watch?v=30HNVhQeGTg&app=desktop) 2018/09/10 Percy  
 [Peter Piper tongue twister song](https://www.youtube.com/watch?v=gGSRavUHyb4) 2018/09/07 Percy  
 [Donald Trump's Supreme Court pick Brett Kavanaugh faces chaotic Senate hearing](https://www.abc.net.au/news/2018-09-05/chaos-grips-senate-hearing-on-trump-supreme-court-pick-kavanaugh/10202482) 2018/09/06 Percy  
-[Chaos grips Senate hearing on Trump Supreme Court pick Kavanaugh](https://www.reuters.com/article/us-usa-court-kavanaugh/chaos-descends-as-senate-hearing-on-trumps-high-court-nominee-opens-idUSKCN1LK0YB) 2018/09/05
+[Chaos grips Senate hearing on Trump Supreme Court pick Kavanaugh](https://www.reuters.com/article/us-usa-court-kavanaugh/chaos-descends-as-senate-hearing-on-trumps-high-court-nominee-opens-idUSKCN1LK0YB) 2018/09/05  
+[Trump Paints Xi Into a Corner](https://www.bloomberg.com/view/articles/2018-08-24/trump-paints-xi-into-a-corner) 2018/09/02 Percy  
+[Why trade row could hit cost of drinks in China](https://www.bbc.com/news/av/business-45297369/why-trade-row-could-hit-cost-of-drinks-in-china) 2018/08/27 Percy  
+[Two HNA units crash as trading resumes after six-month halt, wiping out US$1.6 billion in value](https://www.scmp.com/business/companies/article/2155974/two-hna-units-crash-trading-resumes-after-six-month-halt-wiping) 2018/08/21 Percy  
+[Google staff protest against plan for censored Chinese search engine](https://www.theguardian.com/world/2018/aug/17/google-staff-protest-against-plan-for-censored-chinese-search-engine) 2018/08/18 Percy  
+[China: We Might Help Assad With the War in Syria](https://www.thedailybeast.com/china-we-might-help-assad-with-the-war-in-syria) 2018/08/15 Percy  
+[Rainbow trout can now be called salmon in China](https://www.bbc.com/news/world-asia-china-45178638)  2018/08/14 Percy
