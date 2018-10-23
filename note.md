@@ -1,4 +1,12 @@
 [A lady vanishes: In China, a movie star disappears amid culture crackdown](https://www.reuters.com/article/us-china-showbiz-fan-bingbing/a-lady-vanishes-in-china-a-movie-star-disappears-amid-culture-crackdown-idUSKCN1LU1J4) 2018/09/14/ Percy  
 [Remarks by Vice President Pence on the Administration’s Policy Toward China](https://www.whitehouse.gov/briefings-statements/remarks-vice-president-pence-administrations-policy-toward-china/) 2018/10/05/ Ming  
 [How the Finnish survive without small talk](http://www.bbc.com/travel/story/20181016-how-the-finnish-survive-without-small-talk) 2018/10/11 Percy  
-[Can’t sleep? Perhaps you’re overtired](https://www.theguardian.com/lifeandstyle/2018/oct/22/cant-sleep-perhaps-youre-overtired) 2018/10/22 Percy 
+[Can’t sleep? Perhaps you’re overtired](https://www.theguardian.com/lifeandstyle/2018/oct/22/cant-sleep-perhaps-youre-overtired) 2018/10/22 Percy  
+[SECTION 301 FINAL](https://ustr.gov/sites/default/files/Section%20301%20FINAL.PDF) 2018/09/11 Ming  
+[Is China losing the trade war against America?](https://www.economist.com/finance-and-economics/2018/08/11/is-china-losing-the-trade-war-against-america) 2018/08/29 Ming  
+[Typhoon Mangkhut Leaves Trail of Destruction, Dozens Dead](https://www.wsj.com/articles/typhoon-mangkhut-pummels-hong-kong-mainland-china-1537083857) 2018/09/18 Percy  
+[Discover the History of English](https://www.youtube.com/watch?v=aEH2GkuRIHs&t=47s) 2018/09/14 Percy  
+[You'll Never Throw Away Avocado Seed After Watching This](https://www.youtube.com/watch?v=30HNVhQeGTg&app=desktop) 2018/09/10 Percy  
+[Peter Piper tongue twister song](https://www.youtube.com/watch?v=gGSRavUHyb4) 2018/09/07 Percy  
+[Donald Trump's Supreme Court pick Brett Kavanaugh faces chaotic Senate hearing](https://www.abc.net.au/news/2018-09-05/chaos-grips-senate-hearing-on-trump-supreme-court-pick-kavanaugh/10202482) 2018/09/06 Percy  
+[Chaos grips Senate hearing on Trump Supreme Court pick Kavanaugh](https://www.reuters.com/article/us-usa-court-kavanaugh/chaos-descends-as-senate-hearing-on-trumps-high-court-nominee-opens-idUSKCN1LK0YB) 2018/09/05
