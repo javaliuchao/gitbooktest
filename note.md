@@ -1,5 +1,8 @@
-# Contents  
+# Contents
 
+[US mid-terms: Why do so many Americans not vote?](https://www.bbc.com/news/av/world-us-canada-46093198/us-mid-terms-why-do-so-many-americans-not-vote) 2018/11/05 Percy  
+[US unleashes sanctions on Iran, hitting oil, banking and shipping](https://www.bbc.com/news/business-46092435) 2018/11/05 Percy  
+[A Tug of War for Elite Skills Is Raging Across China](https://www.wsj.com/articles/chinas-got-talentand-cities-are-fighting-for-a-piece-of-it-1540648800) 2018/10/29 Percy  
 [When Trump Phones Friends, the Chinese and the Russians Listen and Learn](https://www.nytimes.com/2018/10/24/us/politics/trump-phone-security.html?action=click&module=Top%20Stories&pgtype=Homepage) 2018/10/25 Percy  
 [Can’t sleep? Perhaps you’re overtired](https://www.theguardian.com/lifeandstyle/2018/oct/22/cant-sleep-perhaps-youre-overtired) 2018/10/22 Percy  
 [How the Finnish survive without small talk](http://www.bbc.com/travel/story/20181016-how-the-finnish-survive-without-small-talk) 2018/10/11 Percy  
