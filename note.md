@@ -1,6 +1,6 @@
 # Contents
 
-[China's trade war woes won't go away after Democrats' midterm gains](https://edition.cnn.com/2018/11/07/asia/us-china-democrats-midterms-intl/index.html) 2018/11/07  
+[China's trade war woes won't go away after Democrats' midterm gains](https://edition.cnn.com/2018/11/07/asia/us-china-democrats-midterms-intl/index.html) 2018/11/07 Percy  
 [US mid-terms: Why do so many Americans not vote?](https://www.bbc.com/news/av/world-us-canada-46093198/us-mid-terms-why-do-so-many-americans-not-vote) 2018/11/05 Percy  
 [US unleashes sanctions on Iran, hitting oil, banking and shipping](https://www.bbc.com/news/business-46092435) 2018/11/05 Percy  
 [A Tug of War for Elite Skills Is Raging Across China](https://www.wsj.com/articles/chinas-got-talentand-cities-are-fighting-for-a-piece-of-it-1540648800) 2018/10/29 Percy  
