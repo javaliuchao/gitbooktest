@@ -1,5 +1,7 @@
 # Contents
 
+[Washington Asks Allies to Drop Huawei](https://www.wsj.com/articles/washington-asks-allies-to-drop-huawei-1542965105?mod=breakingnews&tesla=y) 2018/11/21 Percy  
+[China's middle class: We're being picked like leeks by the government](https://edition.cnn.com/2018/11/03/asia/china-leeks-economy-trade-war-intl/index.html) 2018/11/12 Percy  
 [China's trade war woes won't go away after Democrats' midterm gains](https://edition.cnn.com/2018/11/07/asia/us-china-democrats-midterms-intl/index.html) 2018/11/07 Percy  
 [US mid-terms: Why do so many Americans not vote?](https://www.bbc.com/news/av/world-us-canada-46093198/us-mid-terms-why-do-so-many-americans-not-vote) 2018/11/05 Percy  
 [US unleashes sanctions on Iran, hitting oil, banking and shipping](https://www.bbc.com/news/business-46092435) 2018/11/05 Percy  
